@@ -1,7 +1,7 @@
 <h2>TheFuture搜书官网，免费小说搜索与阅读平台|海量书籍资源</h2>
 <p>TheFuture书籍搜索是一个专为现代读者设计的免费电子书搜索引擎，旨在通过聚合全球范围内的优质电子书资源，为用户提供便捷的书籍查找和下载服务。用户只需输入书名或关键词，即可快速找到所需的电子书资源，包括小说、学术、艺术、商业、科学和技术等领域的书籍。无论是寻找免费下载链接还是购买正版书籍，TheFuture都能提供全面的支持，极大简化了用户的阅读体验。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/1661.html" target="_blank" ><strong>TheFuture搜书最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank" ><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank" ><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p>TheFuture搜书的核心功能包括：</p>
 <ol>
